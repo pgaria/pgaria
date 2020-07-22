@@ -9,5 +9,5 @@
 - 💬 Ask me about: Automation Testing, Framework Designs
 - 📫 How to reach me: Through my [WebSite](https://www.pawangaria.com)
 - 😄 Where I Live: Nuremberg, Germany
-- ⚡ Fun fact: Traveller and Hiker
+- ⚡ Fun fact: Full Time Father and husband these days:)
 
